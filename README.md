@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mightygreg1234
+- 👀 I’m interested in ModerPlays (hes so hot)
+- 🌱 I’m currently learning Basic java 
+- 📫 How to reach me @RottenRobby on telegram
